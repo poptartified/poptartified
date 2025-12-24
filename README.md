@@ -1,16 +1,21 @@
-## Hi there 👋
+## hello hello! the names kei, do NOT call me poptart unless on vrchat.
+<img width="1000" height="267" alt="image" src="https://github.com/user-attachments/assets/14f37818-8690-4942-8a5a-ec21eff8f7b6" />
 
-<!--
-**poptartified/poptartified** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hi! as you read above, my names kei!
 
-Here are some ideas to get you started:
+i am a MINOR. 18+ can interact, but please dont be weird.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+im omnisexual, and use he/him pronouns. im taken by my lovely boyfriend!! <3
+
+if you see me ingame, feel free to say hi, boop, anything! you may c+h freely, and w2i isn't necessary unless stated otherwise in my name! if i have a character that you'd like to ship with your character, go right ahead and interact with me!!
+
+‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
+
+
+some of my interests are: hc/life series, heathers, hamilton, homestuck, regretavator, dandys world, murder drones, osc, etc etc
+
+some games i play are: ponytown, minecraft, vrchat, roblox, deltarune, osu, and splatoon!
+
+i absolutely LOVE music. my favorites are: nirvana, tyler the creator, sublime, mitski, flavor foley, weezer, and a handful of musicals
+
+my user is poptartified for basically everything, with the exception of discord (poptartified. WITH the period,) minecraft (KeiMei34,) and roblox (KeiMei_34).

@@ -18,7 +18,7 @@ some games i play are: ponytown, minecraft, vrchat, roblox, deltarune, osu, and 
 
 i absolutely LOVE music. my favorites are: nirvana, tyler the creator, sublime, mitski, flavor foley, weezer, and a handful of musicals
 
-my user is poptartified for basically everything, with the exception of discord (poptartified. WITH the period,) minecraft (KeiMei34,) and roblox (KeiMei_34).
+my user is poptartified for basically everything, with the exception of discord (poptartified. WITH the period,) minecraft (KeiMei34XD,) and roblox (KeiMei_34).
 
 <img width="200" height="95" alt="image" src="https://github.com/user-attachments/assets/366c3b1b-abb6-40d2-8bb4-ab91295d648b" /> <img width="200" height="95" alt="image" src="https://github.com/user-attachments/assets/7da388f5-25ac-4e8d-8e47-3b1e766c62b0" /> <img width="200" height="95" alt="image" src="https://github.com/user-attachments/assets/0ad5100b-e1e1-47e8-bf3b-b30f7840be7f" /> <img width="200" height="95" alt="image" src="https://github.com/user-attachments/assets/c98d8206-d5e8-4d1c-8a95-8b90a626e39c" />
 
